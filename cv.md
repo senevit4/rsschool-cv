@@ -7,4 +7,4 @@ CV:
 5. All the latest one are under NDA
 6. Working as a Test Automation Engineer for 4 years
 7. BSU FAMCS 2016, BNTU Master degree 2019
-8. English (elaborate on what kind of practice you had, if any, how long it lasted and so on)
+8. Was evaluated as B2+ at the end of last year, have good communication expirience
